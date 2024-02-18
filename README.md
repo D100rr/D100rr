@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dior
 - 👀 I’m interested in Web programming
-- 🌱 I’m currently learning studying Junior programming
+- 🌱 I’m currently learning studying a Junior programming
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me My Instagram https://www.instagram.com/the__d1yor?igsh=c3c2MXAwZmxsb25h
 - 😄 Pronouns:
