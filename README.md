@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web programming
 - 🌱 I’m currently learning studying a Web programming
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me My Instagram https://www.instagram.com/the__d1yor?igsh=c3c2MXAwZmxsb25h
+- 📫 How to reach me My Instagram https://www.instagram.com/dior_0ne?igsh=MXQ5c2M3c3doZWplbw==
 - 😄 Pronouns:
 - ⚡ Fun fact: 
 
